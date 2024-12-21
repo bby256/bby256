@@ -1,4 +1,1 @@
-hmmm
-hmmm
-HMMMMMMM
-HMHMHMHMHM
+ateşin adaptasyonu
